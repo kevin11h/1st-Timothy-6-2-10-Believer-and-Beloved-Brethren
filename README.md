@@ -6,3 +6,5 @@
 Teach and urge these things.
 
 ![](https://raw.githubusercontent.com/kevin11h/1st-Timothy-6-2-10-Believer-and-Beloved-Brethren/master/%E4%B8%8B%E8%BC%89.jpg)
+
+https://www.gotquestions.org/love-money-root-evil.html
